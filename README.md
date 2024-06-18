@@ -17,7 +17,8 @@
 - AI and machine learning experiments
 - Educational tools and platforms
 
-## 📫 How to reach me... Visit my profile for more information...
+## 📫 How to reach me...
+- Kindly click the link for my LinkedIn profile on my bio
 
 ## 😄 Pronouns: He/Him
 
